@@ -8,4 +8,6 @@ script😈</h3>
 <h3>📢I try to be more Active so if you lik it just give star its help me a lot📢</h3>
 
 <h1>Social media:<h1>
- <h3>Telegram : https://t.me/Cloud_Lad </h3>
+<h3>Telegram : https://t.me/Cloud_Lad </h3>
+
+<p>Password For zip file : text me in telegram</p>
